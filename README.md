@@ -28,7 +28,7 @@ Lihat profil, proyek, keahlian, dan CV saya melalui [website portofolio madeoka1
 
 ## Hubungi saya
 
-- [LinkedIn](https://www.linkedin.com/in/i-made-oka-vivikananda-s-kom-5756571a4/)
+- [LinkedIn](https://www.linkedin.com/in/madeoka1stone/)
 - [Instagram](https://www.instagram.com/madeoka1stone)
 - [Email](mailto:deokaxiaoyan@gmail.com)
 
